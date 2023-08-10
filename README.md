@@ -8,7 +8,7 @@ https://gearstation.tk/index.html
 
 ## Contact
 
-My Discord username is sergeirocks100#2456.
+My Discord username is sergeirocks100#2456/sergeirocks100.
 
 Here are the discords i'm in:
 
